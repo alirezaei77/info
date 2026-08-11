@@ -34,7 +34,7 @@ My ultimate goal is to contribute to projects that create meaningful improvement
 
 ## 📫 Contact  
 📧 **Email:** (ali.rezaei20@hotmail.com)  
-🔗 **LinkedIn:** (https://www.linkedin.com/in/alirezaei1397)  
+🔗 **LinkedIn:** (https://www.linkedin.com/in/alirezae77/) 
 💻 **GitHub:** (https://github.com/alirezaei77-ai)
 - **Website:** (Coming Soon) 
 
